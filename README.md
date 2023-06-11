@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧑‍🎓Sou Estudante do quarto período de Ciência da Computação na Universidade Estadual do Ceará - UECE.<br>💬Desde os 8 anos de idade tive contato com computadores e tecnologia, o que acabou me trazendo para o mundo da computação. Me considero absolutamente comprometido e curioso.<br>Sabe aquela sensação de se acomodar naquele lugar e ficar pra<br>sempre ali? Eu nunca tive.
+🧑‍🎓Sou Estudante do quarto período de Ciência da Computação na Universidade Estadual do Ceará - UECE.<br>💬 Desde os 8 anos de idade tive contato com computadores e tecnologia, o que acabou me trazendo para o mundo da computação. Me considero absolutamente comprometido e curioso.<br>Sabe aquela sensação de se acomodar naquele lugar e ficar pra sempre ali? Eu nunca tive.
 
 
 ## 🌐 Socials:
